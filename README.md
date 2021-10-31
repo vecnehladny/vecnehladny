@@ -14,4 +14,4 @@
 
 - 📫 How to reach me: viktorklima@yahoo.com
 
-- 🥩 Fun fact: vecnehladny means always hungry and be sure I am
+- 🍕 Fun fact: vecnehladny means always hungry and be sure I am
