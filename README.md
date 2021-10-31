@@ -1,7 +1,7 @@
 ### Hi there, I'm Viktor 👋
 
 
-
+🎲 Software engineer
 ☕️ Java developer
 🎉 Graphic designer
 🌍 Photographer
